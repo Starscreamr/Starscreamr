@@ -2,8 +2,7 @@
 
  | I don't care if it hurts , I wanna have control . | 
   
-
-[Rentry](https://rentry.co/Buzzkillerz) - ` [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
+ [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
   , Let's not do that again . .
 
