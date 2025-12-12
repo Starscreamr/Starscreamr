@@ -9,13 +9,13 @@
 
 
 
-  , I F O R G  G I VE YOU, IVA  N . .
+  , Tell me why, Your hands..Are cold .
 
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
-![image](https://i.pinimg.com/736x/19/6c/5d/196c5dfd8848e862921946b7f89bf345.jpg) 
+![image](https://i.pinimg.com/1200x/d0/b7/f5/d0b7f58b4ad0b4f628f07a511038a0ea.jpg) 
 
 
 
