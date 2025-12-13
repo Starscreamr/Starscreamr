@@ -2,7 +2,7 @@
 
  | 𝙔𝙤𝙪 𝙙𝙞𝙙 𝙚𝙭𝙖𝙘𝙩𝙡𝙮 𝙬𝙝𝙖𝙩 𝙮𝙤𝙪 𝙨𝙖𝙞𝙙 𝙮𝙤𝙪 𝙬𝙤𝙪𝙡𝙙𝙣'𝙩 . |
 
- , DNI UNLESS CLOSE FRIEND ALWAYS, IN A DEPRESSIVE EPISODE.
+ , DNIUID / UNLESS CLOSE FRIEND ALWAYS, IN A DEPRESSIVE EPISODE.
 
   
   [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
