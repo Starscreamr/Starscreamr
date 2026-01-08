@@ -8,8 +8,7 @@
   [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
 
-  , Tell me why, Your hands..Are cold .
-
+, . LOOPING, LOOPING, LOOPING, LOOPING THE ROOMS!
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
