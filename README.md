@@ -21,6 +21,7 @@ gauuahhh I love all my frieonddss!!!
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313mpogkjvh3bizvrvnlkvtz6drq&cover_image=true&theme=novatorem&show_offline=false&background_color=fcffd6&interchange=false&profanity=false&bar_color=d9d9d9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ‿‿‿‿ ‿‿‿‿ ‿‿‿‿ ‿‿‿‿ ‿‿‿‿ ‿‿‿‿ ‿‿‿‿ ‿‿‿‿ 
+
 ┊         ┊       ┊   ┊    ┊        ┊
 ┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
 ┊         ┊       ┊   ⋆
