@@ -11,7 +11,7 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
-![image](https://tfwiki.net/mediawiki/images2/thumb/1/15/Ratchet_fixes_Cliffjumper-The_Land_Ironclads.jpg/310px-Ratchet_fixes_Cliffjumper-The_Land_Ironclads.jpg)
+![image](ocs.google.com/document/d/1uDAmXU-XnZ0hQInmcON-MOvg7Ghp7GlEZNo7h9q0j7o/edit)
 
 
 
