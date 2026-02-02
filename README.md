@@ -7,8 +7,6 @@ Whoaggh!!!!!
 
 gauuahhh I love all my frieonddss!!!
 
-I accidentally deleted my viewer count thing (I think) so i have to start over :sob: I was at like 5400 idk
-
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
