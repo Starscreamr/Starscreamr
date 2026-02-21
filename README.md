@@ -2,7 +2,7 @@
 
 Embrace the discomfort and have the courage to LIVE! 
   
-. - [StrawPage](https://Bachikins.straw.page) - . 
+. - [StrawPage](https://Bachikins.straw.page) - . [Atabook](https://vampirebl00d.atabook.org/)
 
 
 gauuahhh I love all my frieonddss!!!
