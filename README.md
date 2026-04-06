@@ -10,7 +10,7 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
 
 
-![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSUN8Raa0HVPQ1WxST7IWO0SJAmD4g3PF2jjg&s)
+![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3yuQUl3x2z76WvRq1CKIMN6KFM_QfZ8ekI9FN_F7jy9sui3wn0PbiVCdio3EqyNE5rZJWzmbnyk4sVyzY24ao63m8S5teXojbmWNhbHwybpJoeJKTmBSH1-IvIP3Z925uDAzZFwFH2qmnmqWrEXf7a75_yrTf20HSuyuLmwaenA209sRkfh3M25MELtjv/s1021/Hikaru.jpg)
 
 
 
