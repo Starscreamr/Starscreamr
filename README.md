@@ -1,6 +1,6 @@
 <div align="center">
 
-Can you guys stop copying my skins lmaoooo i just made this avery skin and its already been copied 
+Kid named brandon:
   
 . - [StrawPage](https://Bachikins.straw.page) - . [Atabook](https://vampirebl00d.atabook.org/) - . . . 
 
