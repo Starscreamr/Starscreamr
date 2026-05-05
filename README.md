@@ -10,7 +10,7 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
 
 
-![image](https://i.pinimg.com/736x/57/c5/ac/57c5ac51fbbbf517bd362bcb891b6cab.jpg)
+![image](https://i.pinimg.com/736x/97/33/22/97332206c6ea986b8742fce2953a30ce.jpg)
 
 
 
