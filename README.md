@@ -1,7 +1,8 @@
 <div align="center">
 
-Kid named brandon:
-  
+My dearest, ——
+I cannot adequately express the depth of what you have meant to me. I have spent hours, days, of my pitiful existence awaiting the validation of one who will never seek mine in return. It is an unending cycle of torment, a love both inflicted and endured, brought forth by your hand as much as my own. Do not assign blame to falsehoods born of your own making.
+
 . - [StrawPage](https://Bachikins.straw.page) - . [Atabook](https://vampirebl00d.atabook.org/) - . . . 
 
 
